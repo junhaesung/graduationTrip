@@ -6,3 +6,4 @@
 - 16:30 제주 공항 도착
 - 17:00 제주 공항 4층 카페 구석자리에서 친구들 기다림
 - 구글맵 나만의 지도 만듦 : https://drive.google.com/open?id=1EV6HhJTtKx89sqpeHYmpcdrrftsG9MQ7&usp=sharing
+- 18:10 공항에서 출발
